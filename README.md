@@ -1,2 +1,2 @@
-# Gastronomia-mo-ambicana-
+# Gastronomia-moçambicana-
 Quero apresentar o restaurante 
